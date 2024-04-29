@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @khairakeyy
-- 👀 I’m interested in becoming a web developer
+- 👀 I’m interested in becoming a UI/UX Designer
 - HOPE YOU GUYS UNDERSTAND WHAT I DO AND WHAT I WANT hehe<3
 - 🌱 I’m currently learning how to build a website
 - ⚡ Fun fact: Mahasiswi semester 4 jurusan D3 Sistem Informasi
